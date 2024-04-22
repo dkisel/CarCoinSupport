@@ -1,1 +1,1 @@
-If you have any questions, issues or suggestions when using this App, please contact us with carcoin.support@icloud.com
+If you have any questions, issues or suggestions when using CarCoin, please contact us with carcoin.feedback@gmail.com
